@@ -1,1 +1,7 @@
-# lionman
+# lion-man
+
+# lion-man
+https://en.wikipedia.org/wiki/Lion-man
+
+# neanderthal
+https://en.wikipedia.org/wiki/Neanderthal
